@@ -8,5 +8,7 @@ I get it! We're all super busy -- all of the time! Keeping a clean house is hard
 1: Organization   
 
 This is the foundation!! Having a home for everything means when it's time for something to be put away, there's a place to put it.
+
 1: Pick Up As You Go.
+
 As you live, it's easy to just sit something anywhere. You leave you empty amazon box on the dining table or all the shoes by the door. All of these things should have a home. Once you're done with them, but them where they belong immedately. This will make it much easier when you're actually cleaning the place.
